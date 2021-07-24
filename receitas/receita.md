@@ -30,8 +30,4 @@
 
 
 
-Prontinho Agora só aproveitar!
-
-
-
-RONALDO!
+Prontinho Agora só aproveitar.
